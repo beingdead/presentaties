@@ -3,8 +3,8 @@ Door samuel
 
 ---
 ## inhoud:
--wat
--hoe
--verband DNA
+- wat
+- hoe
+- verband DNA
 
 ---
