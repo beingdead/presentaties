@@ -1,9 +1,8 @@
 # Autisten
-zoals jullie! XD
-
+Door Samuel
 ---
 
 ##inhoud:
-
+Joudy Foody vergiftigt je schoonmoeder!
 
 ---
