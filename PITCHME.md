@@ -3,8 +3,10 @@ Door samuel
 
 ---
 ## inhoud:
--wat
--hoe
--verband DNA
-
+- wat
+- symtomen
+- brein
+- belangrijke personen
+- verband Genetica
+- weetjes
 ---
