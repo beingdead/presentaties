@@ -1,9 +1,10 @@
 # Autisten
-zoals jullie! XD
+Door samuel
 
 ---
-
-##inhoud:
-
+## inhoud:
+-wat
+-hoe
+-verband DNA
 
 ---
